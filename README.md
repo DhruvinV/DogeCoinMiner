@@ -1,0 +1,2 @@
+# DogeCoinMiner
+Become overnight millionaire. 
