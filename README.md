@@ -1,2 +1,2 @@
 # DogeCoinMiner
-Become overnight millionaire. 
+All things related to $$$$$
